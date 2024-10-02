@@ -1,0 +1,2 @@
+# fake-ransomware
+ACTUALLY FAKE USE RESPONSIBILY
